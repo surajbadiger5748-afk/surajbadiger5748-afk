@@ -40,7 +40,7 @@ Fun fact: I debug best with a cup of chai ☕ and cricket on in the background �
 
 ## 📫 Connect With Me  
 - **LinkedIn:** [linkedin.com/in/surajbadiger](https://linkedin.com/in/surajbadiger)  
-- **Email:** yourname@example.com  
+- **Email:** surajbadiger5748@gmail.com 
 - **GitHub:** [github.com/surajbadiger](https://github.com/surajbadiger)  
 
 ---
